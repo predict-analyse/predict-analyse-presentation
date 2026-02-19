@@ -19,13 +19,6 @@ Bonne lecture,
 
 ---
 
-## Sommaire
-
-2. [Comprendre la problématique](#2-comprendre-la-problématique)
-3. [Comment l'adopter en entreprise ?](#3-comment-ladopter-en-entreprise-)
-
----
-
 ## 1. La transdisciplinarité, la prévention de demain !
 
 L'humain étant complexe par nature, aucune spécialité n'a la prétention de réussir à le comprendre dans sa globalité. Au contraire, le **modèle bio-psycho-social** créé à la fin des années 70 instaure un concept novateur : comprendre la santé et le bien-être d'une personne selon plusieurs visions, dans l'optique de servir un même but :
