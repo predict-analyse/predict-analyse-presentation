@@ -63,7 +63,7 @@ En gardant cette pensée, nous avons la certitude que la **collaboration scienti
 
 ### La réalité actuelle
 
-> � La mauvaise santé a coûté à l'Europe environ **2,7 milliards de dollars** en 2017 — soit environ **15 % du PIB**, environ **5 200 $ par personne** (5 400 $ en France).
+> La mauvaise santé a coûté à l'Europe environ **2,7 milliards de dollars** en 2017 — soit environ **15 % du PIB**, environ **5 200 $ par personne** (5 400 $ en France).
 >
 > *Source : McKinsey Global Institute — et ce, avant la crise sanitaire.*
 
